@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @smuslin
 - 👀 I’m interested in Financial Markets!
-- 🌱 I’m currently learning the basics on everything!
 - 💞️ I’m looking to collaborate on high return investmentments!
 
 
